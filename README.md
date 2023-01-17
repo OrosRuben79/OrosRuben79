@@ -1,4 +1,4 @@
-▶️ Hola! Mi nombre es Rubén Oros 🙂
+▶️ Hola!... Bienvenido 🙂
 
 👋 ¿Quién soy?
 
