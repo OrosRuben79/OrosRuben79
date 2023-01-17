@@ -1,4 +1,4 @@
-▶️ Hola!... Bienvenido 🙂
+▶️ Hola!... Bienvenido a mi perfil de GitHub 🙂
 
 👋 ¿Quién soy?
 
